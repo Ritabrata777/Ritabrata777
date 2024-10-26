@@ -1,5 +1,5 @@
 # 💫 About Me:
-I'm currently working on a secret project <br>I'm looking to collaborate on weather app<br>I'm looking for help with chat api<br>I'm currently learning app development <br>Ask me about video editing <br>
+😊I'm currently working on a secret project <br>I'm looking to collaborate on weather app<br>I'm looking for help with chat api<br>I'm currently learning app development <br>Ask me about video editing <br>
 
 
 ## 🌐 Socials:
